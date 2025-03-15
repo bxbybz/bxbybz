@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @bxbybz
-- 👀 I’m interested in ... UX Design, Web Design, Program Management
+- 👀 I’m interested in ... UX Design, Web Design, Program Management, TCM, Herbs, Acupuncture
 - 🌱 I’m currently learning ... Program Management
 - 💞️ I’m looking to collaborate on ... Fantastic Projects!
 - 📫 How to reach me ... 
